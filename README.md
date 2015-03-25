@@ -4,7 +4,7 @@
 
 ### [Opna söguna á PDF-sniði](Raffar_Rotar_og_Niffar.pdf?raw=true)
 
-Þessi smásaga er tilraun til að segja frá upphafi og sögu alheimsins ásamt þróun lífs á Jörðinni í máli sem höfðar til barna. Sagan er ekki hugsuð sem kennsluefni heldur frekar til að vekja áhuga barna á alheiminum og vísindum. Í sögunni nota ég ekki alltaf rétt heiti yfir hlutina heldur bý til ný orð og persónugeri efni og lögmál. Rafeindir, róteindir og nifteindir eru t.d. kallaðar Raffar, Rótar og Niffar. Ég læt samt stundum fylgja með útskýringar yfir hlutina og hugtökin sem verið er að fjalla um. Hugmyndin er að þeir sem eru eldri geti notað það til að leita að frekari upplýsingum um viðkomandi atriði. Þannig geta jafnt ungir sem aldir notið þess að lesa sögunna og spáð í alheiminn saman.
+Þessi smásaga er tilraun til að segja frá upphafi og sögu alheimsins ásamt þróun lífs á Jörðinni á máli sem höfðar til barna. Sagan er ekki hugsuð sem kennsluefni heldur frekar til að vekja áhuga barna á alheiminum og vísindum. Í sögunni nota ég ekki alltaf rétt heiti yfir hlutina heldur bý til ný orð og persónugeri efni og lögmál. Rafeindir, róteindir og nifteindir eru t.d. kallaðar Raffar, Rótar og Niffar. Ég læt samt stundum fylgja með útskýringar yfir hlutina og hugtökin sem verið er að fjalla um. Hugmyndin er að þeir sem eru eldri geti notað það til að leita að frekari upplýsingum um viðkomandi atriði. Þannig geta jafnt ungir sem aldir notið þess að lesa sögunna og spáð í alheiminn saman.
 
 Það vantar mjög myndskreytingar og það myndi sannarlega hjálpa við að útskýra efnið betur. Ég hvet fólk, bæði börn og fullorðna, að teikna myndir fyrir söguna og annaðhvort biðja mig um að setja þær inn í þessar útgáfu eða gefa út sína eigin myndskreyttu útgáfu.
 
